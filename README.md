@@ -1,7 +1,6 @@
 ### Hi there 👋
 
 [![First-Quarter-Linkedin-Article-Cover.png](https://i.postimg.cc/XqhRJ58B/First-Quarter-Linkedin-Article-Cover.png)](https://postimg.cc/H8wZvVFT)
-<!--
 
 
 A few things about me, let's start:
