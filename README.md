@@ -14,5 +14,5 @@ A few things about me, let's start:
 -->
 
 - https://www.linkedin.com/in/rikardoakosta/ ✔ 
-- https://twitter.com/Rikardoakost 
-- https://www.instagram.com/rikardo.akosta/👍
+- https://twitter.com/Rikardoakost ✨
+- https://www.instagram.com/rikardo.akosta/ 🎆🎇
