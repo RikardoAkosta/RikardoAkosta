@@ -12,3 +12,7 @@ A few things about me, let's start:
 - 😄 Nicknames: Richy for friends.
 - 📫 you can contact me: .
 -->
+
+- linkedin.com/in/rikardoakosta✔ 
+- https://twitter.com/Rikardoakost 
+- https://www.instagram.com/rikardo.akosta/👍
