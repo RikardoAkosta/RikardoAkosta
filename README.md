@@ -2,7 +2,6 @@
 
 [![First-Quarter-Linkedin-Article-Cover.png](https://i.postimg.cc/XqhRJ58B/First-Quarter-Linkedin-Article-Cover.png)](https://postimg.cc/H8wZvVFT)
 <!--
-**RikardoAkosta/rikardoakosta** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 
 A few things about me, let's start:
