@@ -13,6 +13,6 @@ A few things about me, let's start:
 - 📫 you can contact me: .
 -->
 
--- linkedin.com/in/rikardoakosta ✔ 
--- https://twitter.com/Rikardoakost 
--- https://www.instagram.com/rikardo.akosta/👍
+- https://www.linkedin.com/in/rikardoakosta/ ✔ 
+- https://twitter.com/Rikardoakost 
+- https://www.instagram.com/rikardo.akosta/👍
